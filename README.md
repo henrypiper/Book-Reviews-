@@ -8,6 +8,10 @@ The list is organized with the most recent read at the top and the oldest logged
 
 Enjoy!
 
+---
+---
+---
+
 ### A Walk in the Woods
 *Written by Bill Bryson*  
 **Overall Rating: 9/10**
