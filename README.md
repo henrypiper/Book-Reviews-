@@ -1,3 +1,13 @@
+# Summer 2024 Book Log
+
+Hello Everyone!
+
+Over the summer, I began to log the books that I read as a way for me to remember them and to have a guide to revisit if I ever thought about reading a book again. This list was originally meant to be just for me, but with the encouragement of some of my peers, I decided to share it with the public.
+
+The list is organized with the most recent read at the top and the oldest logged read (from May 2024) at the bottom.
+
+Enjoy!
+
 ### A Walk in the Woods
 *Written by Bill Bryson*  
 **Overall Rating: 9/10**
