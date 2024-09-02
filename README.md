@@ -1,4 +1,4 @@
-# Summer 2024 Book Log
+# Book Log
 
 Hello Everyone!
 
