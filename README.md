@@ -9,9 +9,15 @@ The list is organized with the most recent read at the top and the oldest logged
 Enjoy!
 
 ---
-<p align="center">↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓</p>
+---
+
+![Book Opening](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExOXQ3OW8zdjR5dHlnNnVrNzZ5dmJqOWFpM2k2NjV5Ym5nZHRvb2QwayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/xT1XGw3b5osvin2IXC/giphy.webp)
 
 ---
+---
+
+
+
 
 ### A Walk in the Woods
 *Written by Bill Bryson*  
